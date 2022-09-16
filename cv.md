@@ -1,1 +1,4 @@
-Veranika Rusakovich
+1. Veranika Rusakovich
+2. discord: @VerikaVeri, i-mail: ipensne@gmail.com, phone: +37067505485, location: Vilnius, Lithuania
+3. I'm a self-started, a result-driven dedicated professional with history of meeting company goals who's looking for maintain full-time job. I'm hardworking and passionate person with strong organizational skills who skilled in working under pressure and adapting to new situations and challenges to best enhance the organizational brand. I'm willing to help team achieve company goals with own working experience, that includs excellent interpersonal and time management skills. 
+4. HTML5, CSS3, JavaScript, Git/GitHub, Figma, Communication, Event Managment, Project Management, Business Development, Digital Marketing, Brand Management, Web Project Management, Social Media Marketing, Copywriting, Organisation, Teamwork, Growth mindset, Emotional intelligence, Emphaty
